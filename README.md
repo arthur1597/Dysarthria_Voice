@@ -1,7 +1,7 @@
 # Dysarthria_Voice
 
 
-2025 KAICTS 학회에 논문 지원하여 현재 심사중
+2025 KAICTS 학회에 논문 투고 완료하여 현재 Pre-Printing 상태
 
 
 
